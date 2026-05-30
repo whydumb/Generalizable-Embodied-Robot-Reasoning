@@ -16,4 +16,4 @@ https://zenodo.org/records/16308744
 # contacts
 https://discord.gg/22wjZfNGQR
 
-faxaistudy@gmail.com
+poby7722@gmail.com
